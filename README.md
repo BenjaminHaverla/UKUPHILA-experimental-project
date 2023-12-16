@@ -13,3 +13,6 @@ My inspiration came from our philosophy teacher, who spoke in interesting ways a
 
 ![text description](Images/Green_4.jpg)
 ![text description](Images/Green_5.jpg)
+
+# Contact me:
+## **Mail**: haverla.tros@gmail.com
