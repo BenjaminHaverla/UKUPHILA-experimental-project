@@ -15,6 +15,7 @@ My inspiration came from our philosophy teacher, who spoke in interesting ways a
 ![text description](Images/Green_5.jpg)
 
 # [UKUPHILA short animation](https://filmfreeway.com/ukuphila)
+If you would like to view this animation, please don't hesitate to [click here](https://filmfreeway.com/ukuphila).
 
 -------------------------------------------------------------
 
